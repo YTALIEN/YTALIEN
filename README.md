@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @YTALIEN
 - 👀 I’m interested in many
 - 🌱 I’m currently learning everything
-- 💞️ I’m looking to collaborate on MOEA
+- 💞️ I’m looking to 
 - 📫 How to reach me :107240904@qq.com/(+86)18122019609
 
 <!---
